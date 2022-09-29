@@ -1,7 +1,7 @@
 # wilp Resume number 25329788
 
 The issue about the embark portal . 
- - My last name is missing in the embark portal not having wwhich iam unable to move forward with the bgv process
+ - My last name is missing in the embark portal not having which iam unable to move forward with the bgv process
  - I still have to submit documents for further clarification.
  - Please look into the matter and help me.
  
